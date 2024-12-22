@@ -36,6 +36,7 @@ Switch to drawing mode from design mode
 ![image](https://user-images.githubusercontent.com/113594316/199408705-ed302b2a-90c3-41c0-9cc4-791a93366e2a.png)
 
 ## OUTPUT
+![KARJHANI PRIYANKA S B EX 5 1_page-0001](https://github.com/user-attachments/assets/e939db70-b340-45bf-94eb-c161caaeaa81)
 
 
 ## RESULT:
